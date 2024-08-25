@@ -2,6 +2,6 @@
 - 👀 I’m interested in work with IT
 - 🌱 I’m currently learning HTML
 - 💞️ I’m looking to collaborate on any begginner projects
-- 📫 How to reach me davi_agg on discord or 
+- 📫 How to reach me davi_agg on discord or https://www.linkedin.com/in/iamdavigabriel/ on linkedin
 - 😄 Pronouns: he/him
 - ⚡ Fun fact: i love listen to music and play guitar
